@@ -1,0 +1,1 @@
+# Portfolio_versi-n_cortada_talon
